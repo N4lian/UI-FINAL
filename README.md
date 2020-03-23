@@ -21,3 +21,8 @@ https://www.youtube.com/watch?v=muOAVqKCU1Y&feature=youtu.be&fbclid=IwAR0vxOagCC
 
 #แบบสอบถาม 
 https://docs.google.com/forms/d/e/1FAIpQLScP6DDJ0YVfHRqPF9sPMxyEnOsugaR5X54sMD5SK4AvujqpXA/viewform
+
+
+
+61020649 นายธนากร สิทธิกรรม
+61022360 นายปรมัตถ์ ขัติวงค์
